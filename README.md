@@ -6,7 +6,6 @@ If you found value in something I have created, please feel free to give some �
 
 
 - 🌱 I’m currently learning ...Java Fullstack Development
-- 👯 I’m looking to collaborate on ...Java Fullstack Development
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ...[mail](mailto:venkatramanajandhyam@gmail.com)
 - 😄 Pronouns: ...He/Him
