@@ -9,5 +9,4 @@ If you found value in something I have created, please feel free to give some �
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ...[mail](mailto:venkatramanajandhyam@gmail.com)
 - 😄 Pronouns: ...He/Him
-- ⚡ Fun fact: ...My perfect day would start with smile and end with a smile.
 
